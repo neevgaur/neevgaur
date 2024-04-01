@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **gaurneev@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1BdlgVorQ80WGdSnyScjnG87v0E2XWGDm/view?usp=sharing](https://drive.google.com/file/d/1BdlgVorQ80WGdSnyScjnG87v0E2XWGDm/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1UXt_mc0PJwWV_Rrg4wN3EGwhWQ4VSIlK/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
